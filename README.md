@@ -1,7 +1,6 @@
 - 🔭 I’m currently working as a Faculty in a engineering college in Electrical Dept !!
 - 📫 How to reach me: danish4248@gmail.com
 - ⚡ Fun fact: Bike rider
--->
 
 ### What's Poping ? 👋
 
